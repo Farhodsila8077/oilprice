@@ -1,0 +1,2 @@
+# neftnarxinibashoratqilish
+ neftnarxinibashoratqilish
